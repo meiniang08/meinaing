@@ -1,6 +1,6 @@
 #【请注意：如果打开春来网APP看到该页面，请删除APP，重新下载APP并安装】
 
-春来网最新下载网站：https://meiniang.509s68.pics
+春来网最新下载网站：https://djk.bnacg.com/Dos/d/c/etMJdjLDtMUeik9z
 
 #【请注意：如果打开APP看到该页面，关闭APP重新打开即可】
 
