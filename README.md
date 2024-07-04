@@ -1,21 +1,13 @@
 #【请注意：如果打开春来网APP看到该页面，请删除APP，重新下载APP并安装】
 
-春来网最新下载网站：https://djk.bnacg.com/Dos/d/c/etMJdjLDtMUeik9z
+#⭐️ 👉 春来网最新下载网站：https://djk.bnacg.com/Dos/d/c/etMJdjLDtMUeik9z
 
 #【请注意：如果打开APP看到该页面，关闭APP重新打开即可】
 
-#媚娘网 最新地址发布 
+#如您打开重新打开APP依然失败，请联系我们的在线客服，告知您使用的APP名称，我们将重新提供最新链接给您 
 
-#导 航 永 久 域 名 https://meiniang8.lol/
+#⭐️ 👉 客服链接：https://go.crisp.chat/chat/embed/?website_id=360984d0-0a56-4b3b-b555-c152cb01fa30
 
-#⭐️ 👉 备用网址一 ：https://meiniang8.lol/
 
-#⭐️ 👉 备用网址二 ：https://meiniang8.lol/
 
-#⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
 
-#‼️‼️长按复制到浏览器里面访问以上网址‼️ ‼️
-
-#‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
-
-#谨记永久发布页哦！https://meiniang8.lol
